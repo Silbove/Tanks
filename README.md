@@ -1,1 +1,1 @@
-https://www.notion.so/Tanks-22fab40b03af802c8c59c0979e215b17
+https://www.notion.so/Tanks-22fab40b03af802c8c59c0979e215b17?source=copy_link
